@@ -1,3 +1,3 @@
 # Indian-wordlist-Dictionary
 
-MORE COMMING....
+soon you will get more perfect wordlist
